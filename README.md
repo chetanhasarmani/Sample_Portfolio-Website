@@ -1,1 +1,0 @@
-# Sample_gallery-Website
